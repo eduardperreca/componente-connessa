@@ -79,6 +79,6 @@ Per poterci candidare alle prossime elezioni studentesche, sia al Dipartimento d
 Il 5, 6 e 7 maggio vota **Componente Connessa**  
 alle elezioni del Dipartimento di Informatica e del Comitato di direzione della Facoltà di Scienze e Tecnologie
 
-*Connettere per rappresentare, rappresentare per costruire.*
+*Connettere per rappresentare, rappresentare per unire.*
 
 </div>
